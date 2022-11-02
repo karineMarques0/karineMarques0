@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @karineMarques0
 - 👀 I'm interested in learning more about CSS technology
 - 🌱 I am currently learning about database modeling
-- 📫 Contact me through the social network Instagram - https://www.instagram.com/kah_vasconcelos15/
+- 📫 Contact me through the social network Instagram - http://l1nq.com/kahvasconcelos15
